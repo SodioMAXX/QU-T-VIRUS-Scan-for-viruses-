@@ -1,2 +1,2 @@
-# trang-quet-virus-uy-tin-cam-ket-SODIOMAXX-khong-ma-doc-khong-rac-
-đây là trang web quét virus https://www.virustotal.com tôi không phải chủ sở hữu tôi chỉ giới thiệu cho mọi người 
+TRANG WEB TÔI CHỈ LÀ NGƯỜI GIỚI THIỆU TÔI KHÔNG PHẢI NGƯỜI TẠO RA 
+This website is in English. I am only the referrer; I am not the creator. 
